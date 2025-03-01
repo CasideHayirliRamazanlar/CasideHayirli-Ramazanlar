@@ -1,2 +1,2 @@
-# CasideHay-rl-Ramazanlar
+# CasideHayirli Ramazanlar
 Tüm Müslüman Aleminin Ramazanı Mübarek Olsun CASİ ❤
